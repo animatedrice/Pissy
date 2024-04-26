@@ -2,6 +2,8 @@
 
 ![pissys](https://github.com/animatedrice/Pissy/assets/15009951/c68048e1-871c-4829-b0e8-7f442e9e969a)
 
+"We have enough pissy's, it's fine" - sofie 2024
+
 All Prizzies are pissys now hehe
 
 ### Requirements
